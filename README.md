@@ -40,6 +40,8 @@ Recompensa
 ---
 
 ### Hábitos chaves
+#### Quanto tempo leva para adiquirir um hábito.
+
 
 ---
 
